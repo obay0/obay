@@ -1,2 +1,2 @@
 # obay
-Yes
+Jangan lupa bintang guys
